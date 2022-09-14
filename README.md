@@ -1,4 +1,4 @@
-# For JSBox, For myslef.
+# For JSBox, For myself.
 
 All contents are original that belong to me.
 
